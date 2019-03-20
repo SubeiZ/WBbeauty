@@ -1,6 +1,7 @@
 - []()
 - [半藏森林](https://weibo.com/recklesss)
 - [FloraWeiii ](https://weibo.com/u/2480612361) -  Ins: flora_weiii
+- [蔡萝莉S](https://weibo.com/4129918C) - 抖音红人 斗鱼直播平台签约主播
 - [Ms_Catberry](https://weibo.com/u/1931537432) - 知名动漫博主
 - [你呀-](https://weibo.com/dearmore)
 - [Nnnnnao12](https://weibo.com/u/5727527635)
